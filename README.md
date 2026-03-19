@@ -201,7 +201,7 @@ Proprietário / Técnico em Informática | PS Informática
 
 ### **📫 Como me encontrar:**
 
-[<img width="609" height="948" alt="Gemini_Generated_Image_gd6tkngd6tkngd6t" src="https://github.com/user-attachments/assets/053b022b-c5ed-4b4d-857c-5a0e2979f68e" />](https://www.linkedin.com/in/deraldo-palomino-filho)
+[<img width="609" height="948" alt="Gemini_Generated_Image_gd6tkngd6tkngd6t" src="https://github.com/user-attachments/assets/053b022b-c5ed-4b4d-857c-5a0e2979f68e" />](https://discord.gg/Vgu6dtZKUa)
 
 
 *Este README é um documento vivo e está sempre sendo atualizado para refletir meu crescimento e novos projetos\!*
